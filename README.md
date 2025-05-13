@@ -1,5 +1,5 @@
 - 👋 H
-- 👀 penis
+- 👀 p
 - 🌱 I’m currently jorking it😄😄😄
  I think therefore - 💞️ I'm
 - 📫 😄😄How to peach me
